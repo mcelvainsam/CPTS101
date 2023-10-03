@@ -1,1 +1,2 @@
-# CPTS101
+Sam McElvain
+katherine.mcelvain@wsu.edu
